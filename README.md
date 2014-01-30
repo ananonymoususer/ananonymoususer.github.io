@@ -1,0 +1,1 @@
+This site is a parody of the Toronto Maple Leafs Sports and Entertainment (MLSE). All logos, web design, web layout, and other materials outside of the content of this fake news story are property of MLSE and were used solely for the purpose of parody and satire.
